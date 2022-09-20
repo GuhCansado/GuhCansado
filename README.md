@@ -1,6 +1,6 @@
 ## Gustavo Azevedo, estudante.
 
-  <img align="right" alt="Cansado" height="150" style="border-radius:50px;" src="https://media.discordapp.net/attachments/625132907903582208/1021915077571510292/tumblr_d165452a3419d8a90bceb513af9d64f3_5be78392_400.gif">
+  <img align="right" alt="Cansado" height="240" style="border-radius:50px;" src="https://cdn.discordapp.com/attachments/625132907903582208/1021917775205236796/JubilantNextIbex-max-1mb.gif">
 </div>
 
 
